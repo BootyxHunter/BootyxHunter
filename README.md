@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @BootyxHunter
-- 👀 I’m interested in ... physics
-- 🌱 I’m currently learning ... how to be human
-- 💞️ I’m looking to collaborate on ... pet projects
+- 👋 Hi, I’m @BootyxHunter for hire.
+- 👀 I’m interested in ... physics, astronomy, chemistry, biology, cardology, eating well, and the work of Hamilton Morris.
+- 🌱 I’m currently learning ... how to be human and also normal.
+- 💞️ I’m looking to collaborate on ... pet projects, chats, no funny business ;-/ unless you're cool! 
 - 📫 How to reach me ... bootyxhunter@proton.me
 - 😄 Pronouns: ... You wouldn't get it
 - ⚡ Fun fact: ... You wish LOL
